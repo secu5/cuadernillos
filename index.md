@@ -1,12 +1,14 @@
 ## Bienvenidos a Secu5 - Chascomús
 
-You can use the [editor on GitHub](https://github.com/secu5/cuadernillos/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Desde esta página podrás descargar los materiales de estudio que usaremos en las distintas materias. Ante cualquier duda, comunicate con la preceptora o con los profesores.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### TURNO MAÑANA
 
-### Markdown
+[Cuadernillo 1 - **1RO A**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+`
+[Image](src)
+`
 
 ```markdown
 Syntax highlighted code block
