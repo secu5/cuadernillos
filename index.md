@@ -2,7 +2,7 @@
 
 Desde esta página podrás descargar los materiales de estudio que usaremos en las distintas materias. Ante cualquier duda, comunicate con la preceptora o con los profesores.
 
-### TURNO MAÑANA
+### **TURNO MAÑANA**
 `
 - [Cuadernillo 1 - **1RO A**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
 - [Cuadernillo 1 - **2DO A**](https://drive.google.com/file/d/14p607GX82CrEtkFzoSGaoMpT68LQqcBc/view?usp=sharing)
@@ -13,7 +13,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 `
 
 
-### TURNO TARDE
+### **TURNO TARDE**
 `
 - [Cuadernillo 1 - **1RO C**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
 - [Cuadernillo 1 - **2DO B**](https://drive.google.com/file/d/1kQRg10iTwjJ5oOuO6ndvKqOpWzLCTbaN/view?usp=sharing)
