@@ -23,3 +23,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 1 - **6TO B**](https://drive.google.com/file/d/19N9ow0jMRZuIdZBYiVuBnMK1-GJtIgcB/view?usp=sharing)
 `
 
+### **ESPECIALES**
+
+- [Cuadernillo 1 - **CONSTRUCCIÓN DE CIUDADANÍA**](https://drive.google.com/file/d/1LpOzN6GTLdD508cktZ6Hv7KAPd4XI9PW/view?usp=sharing)
+
