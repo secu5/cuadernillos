@@ -2,7 +2,7 @@
 
 Desde esta página podrás descargar los materiales de estudio que usaremos en las distintas materias. Ante cualquier duda, comunicate con la preceptora o con los profesores.
 
-![Image](https://github.com/secu5/cuadernillos/blob/gh-pages/2.png)
+![Image](https://lh3.googleusercontent.com/t0M7xNkD3zgelo0czrsYgwP-lrmrby4VUv78j5NCIqDrre73fNipTDI8FT7y0n6m7kgarAEXGhhvW_8ZsYwsFXYqJozG7NZPwXe3ocbkAFVGm2zY57gMGciNzVvzc1pxcg=w1280)
 
 ### **TURNO MAÑANA**
 - [Cuadernillo 1 - **1RO A**]()
@@ -22,7 +22,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 1 - **6TO B**]()
 
 
-![Image](https://github.com/secu5/cuadernillos/blob/gh-pages/1.png)
+![Image](https://lh4.googleusercontent.com/ynSkTGqnQup4eHIspiHhUKCXrcJh7il-Wy0L0yCdv8f_ll7L-ryO-av4zLFjJ95hZfMxS9aAA-BELwoHJNSsPhdPMtCzaOq9tv-MM4_Nhcl1kYhYdEtZE3D5lKm-njt2tg=w1280)
 
 ### **TURNO MAÑANA**
 - [Cuadernillo 1 - **1RO A**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
