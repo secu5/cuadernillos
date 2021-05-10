@@ -5,23 +5,21 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 ![Image](https://lh4.googleusercontent.com/hWUDwKRxnDfbT5R5AeXCrOtFWg6_mKASnXp6TYF2gTT6UevxoPpduaP8aYTX8NA5bMIIyUFZnqUw1B28ZpFIdZhZAQHofBmVqwKmhJfGzctaDDkczrdi9v2XIwcjsDs_Kg=w1280)
 
 ### **TURNO MAÑANA**
-- [Cuadernillo 1 - **1RO A**](x)
-- [Cuadernillo 1 - **2DO A**](x)
+- [Cuadernillo 1 - **1RO A**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
+- [Cuadernillo 1 - **2DO A**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
 - [Cuadernillo 1 - **3RO AyC**](https://drive.google.com/file/d/1fJPNj3x_cnX2Ka1v7JD23E4hcMbhFe2q/view?usp=sharing)
-- [Cuadernillo 1 - **4TO B**](x)
-- [Cuadernillo 1 - **5TO A**](x)
-- [Cuadernillo 1 - **6TO A**](x)
-`
+- [Cuadernillo 1 - **4TO B**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
+- [Cuadernillo 1 - **5TO A**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
+- [Cuadernillo 1 - **6TO A**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
 
 
 ### **TURNO TARDE**
-- [Cuadernillo 1 - **1RO C**](x)
-- [Cuadernillo 1 - **2DO B**](x)
+- [Cuadernillo 1 - **1RO C**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
+- [Cuadernillo 1 - **2DO B**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
 - [Cuadernillo 1 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing)
-- [Cuadernillo 1 - **4TO A**](x)
-- [Cuadernillo 1 - **5TO B**](x)
-- [Cuadernillo 1 - **6TO B**](x)
-`
+- [Cuadernillo 1 - **4TO A**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
+- [Cuadernillo 1 - **5TO B**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
+- [Cuadernillo 1 - **6TO B**](https://lh6.googleusercontent.com/BvWWq0_9r7dmZKlzEoE3JFMgzpBEQDo_ZA3Iou6K-ZtkYOz3B2g94iZ42RMggBxrA46Hn15tftdsr16jlkKMtIw=w1280)
 
 
 ![Image](https://lh4.googleusercontent.com/qp2zSFYfVUMzD1YWUBCrEhwxDIjQNlYmUj0wn4Jh58efIFUQkHjyMoJ3gB_qZ0Ar0mvE5ea4OOUi1ltU44U55bruwoguOxA5Wh_ebFWyicQLX1i5Pkf8q1-O8OeaCM3cww=w1280)
@@ -33,7 +31,6 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 1 - **4TO B**](https://drive.google.com/file/d/1cnylcHJIupAaDUZmzQ2MpO5PlzQ4-ZWO/view?usp=sharing)
 - [Cuadernillo 1 - **5TO A**](https://drive.google.com/file/d/12qFtuRFK__KA15H39xQ5Mc69OId-C644/view?usp=sharing)
 - [Cuadernillo 1 - **6TO A**](https://drive.google.com/file/d/1y0B5-c6IfeIbzrhldAa-m4HdshSlbZX1/view?usp=sharing)
-`
 
 
 ### **TURNO TARDE**
@@ -43,7 +40,6 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 1 - **4TO A**](https://drive.google.com/file/d/1CudYHs8sGSm4l8I_UyIirbaJ2SgWquxA/view?usp=sharing)
 - [Cuadernillo 1 - **5TO B**](https://drive.google.com/file/d/1C996h9Xej-rky3XzfzcSkNQDRZPUDuVr/view?usp=sharing)
 - [Cuadernillo 1 - **6TO B**](https://drive.google.com/file/d/19N9ow0jMRZuIdZBYiVuBnMK1-GJtIgcB/view?usp=sharing)
-`
 
 ### **ESPECIALES**
 
