@@ -5,7 +5,6 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 ![Image](https://lh4.googleusercontent.com/hWUDwKRxnDfbT5R5AeXCrOtFWg6_mKASnXp6TYF2gTT6UevxoPpduaP8aYTX8NA5bMIIyUFZnqUw1B28ZpFIdZhZAQHofBmVqwKmhJfGzctaDDkczrdi9v2XIwcjsDs_Kg=w1280)
 
 ### **TURNO MAÑANA**
-`
 - [Cuadernillo 1 - **1RO A**](x)
 - [Cuadernillo 1 - **2DO A**](x)
 - [Cuadernillo 1 - **3RO AyC**](https://drive.google.com/file/d/1fJPNj3x_cnX2Ka1v7JD23E4hcMbhFe2q/view?usp=sharing)
@@ -16,7 +15,6 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 
 
 ### **TURNO TARDE**
-`
 - [Cuadernillo 1 - **1RO C**](x)
 - [Cuadernillo 1 - **2DO B**](x)
 - [Cuadernillo 1 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing)
@@ -29,7 +27,6 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 ![Image](https://lh4.googleusercontent.com/qp2zSFYfVUMzD1YWUBCrEhwxDIjQNlYmUj0wn4Jh58efIFUQkHjyMoJ3gB_qZ0Ar0mvE5ea4OOUi1ltU44U55bruwoguOxA5Wh_ebFWyicQLX1i5Pkf8q1-O8OeaCM3cww=w1280)
 
 ### **TURNO MAÑANA**
-`
 - [Cuadernillo 1 - **1RO A**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
 - [Cuadernillo 1 - **2DO A**](https://drive.google.com/file/d/14p607GX82CrEtkFzoSGaoMpT68LQqcBc/view?usp=sharing)
 - [Cuadernillo 1 - **3RO AyC**](https://drive.google.com/file/d/1ZDM_oQqxWSvcaBadXrVWbEUzVstYsA9Z/view?usp=sharing)
@@ -40,7 +37,6 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 
 
 ### **TURNO TARDE**
-`
 - [Cuadernillo 1 - **1RO C**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
 - [Cuadernillo 1 - **2DO B**](https://drive.google.com/file/d/1kQRg10iTwjJ5oOuO6ndvKqOpWzLCTbaN/view?usp=sharing)
 - [Cuadernillo 1 - **3RO B**](https://drive.google.com/file/d/1KFy_q7-5rVJI6-0tA6nsYHfyzQzCx3vz/view?usp=sharing)
