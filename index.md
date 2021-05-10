@@ -2,6 +2,7 @@
 
 Desde esta página podrás descargar los materiales de estudio que usaremos en las distintas materias. Ante cualquier duda, comunicate con la preceptora o con los profesores.
 
+# Segunda entrega
 ![Image](https://sites.google.com/site/mailskike/img/2.png?attredirects=0)
 
 ### **TURNO MAÑANA**
@@ -13,6 +14,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 2 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing)
 
 
+# Primera entrega
 ![Image](https://sites.google.com/site/mailskike/img/1.png?attredirects=0)
 
 ### **TURNO MAÑANA**
