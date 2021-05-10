@@ -5,9 +5,11 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 ![Image](https://lh3.googleusercontent.com/t0M7xNkD3zgelo0czrsYgwP-lrmrby4VUv78j5NCIqDrre73fNipTDI8FT7y0n6m7kgarAEXGhhvW_8ZsYwsFXYqJozG7NZPwXe3ocbkAFVGm2zY57gMGciNzVvzc1pxcg=w1280)
 
 ### **TURNO MAÑANA**
+- [Cuadernillo 2 - **2DO A**](https://drive.google.com/file/d/1ICJ2LQ_VDH5rB6qQ4dIF_YkUkhRNroH4/view?usp=sharing)
 - [Cuadernillo 2 - **3RO AyC**](https://drive.google.com/file/d/1fJPNj3x_cnX2Ka1v7JD23E4hcMbhFe2q/view?usp=sharing)
 
 ### **TURNO TARDE**
+- [Cuadernillo 2 - **2DO B**](https://drive.google.com/file/d/1poqUMUisqwmBeIrMDyjLw0iPE3mj8RGX/view?usp=sharing)
 - [Cuadernillo 2 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing)
 
 
