@@ -2,7 +2,7 @@
 
 Desde esta página podrás descargar los materiales de estudio que usaremos en las distintas materias. Ante cualquier duda, comunicate con la preceptora o con los profesores.
 
-![Image](https://lh3.googleusercontent.com/t0M7xNkD3zgelo0czrsYgwP-lrmrby4VUv78j5NCIqDrre73fNipTDI8FT7y0n6m7kgarAEXGhhvW_8ZsYwsFXYqJozG7NZPwXe3ocbkAFVGm2zY57gMGciNzVvzc1pxcg=w1280)
+![Image](https://sites.google.com/site/mailskike/img/2.png?attredirects=0)
 
 ### **TURNO MAÑANA**
 - [Cuadernillo 2 - **2DO A**](https://drive.google.com/file/d/1ICJ2LQ_VDH5rB6qQ4dIF_YkUkhRNroH4/view?usp=sharing)
@@ -13,7 +13,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 2 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing)
 
 
-![Image](https://lh4.googleusercontent.com/ynSkTGqnQup4eHIspiHhUKCXrcJh7il-Wy0L0yCdv8f_ll7L-ryO-av4zLFjJ95hZfMxS9aAA-BELwoHJNSsPhdPMtCzaOq9tv-MM4_Nhcl1kYhYdEtZE3D5lKm-njt2tg=w1280)
+![Image](https://sites.google.com/site/mailskike/img/1.png?attredirects=0)
 
 ### **TURNO MAÑANA**
 - [Cuadernillo 1 - **1RO A**](https://drive.google.com/file/d/1Lr21Ant4kJHbyhJflnGQ_5y6eNWyT7Mt/view?usp=sharing)
