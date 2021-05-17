@@ -10,6 +10,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 2 - **2DO A**](https://drive.google.com/file/d/1ICJ2LQ_VDH5rB6qQ4dIF_YkUkhRNroH4/view?usp=sharing) /// [Cuadernillo 2 - **MATEMÁTICA**](https://drive.google.com/file/d/12KiCI5t4-CQqBA9I25uqS-tgWUjqwHR6/view?usp=sharing)
 - [Cuadernillo 2 - **3RO AyC - PARTE A**](https://drive.google.com/file/d/1fJPNj3x_cnX2Ka1v7JD23E4hcMbhFe2q/view?usp=sharing) /// [Cuadernillo 2 - **3RO AyC - PARTE B**](https://drive.google.com/file/d/1IdxsaqwFCJHToT1WLhqU2ptrgDViqN-C/view?usp=sharing)
 - [Cuadernillo 2 - **4TO B**](https://drive.google.com/file/d/1KmAaqiHhjPjmS5Y6hYZqd5cXarH9bHrW/view?usp=sharing)
+- [Cuadernillo 2 - **5TO A**](https://drive.google.com/file/d/1jYOhMFkZf2NG0I0a0VJqo-8TGnDDSpTZ/view?usp=sharing)
 
 ### **TURNO TARDE**
 - [Cuadernillo 2 - **1RO C**](https://drive.google.com/file/d/1s1k1EYbDWIeCRhsAu4npST3lJ-E9ETMP/view?usp=sharing)
