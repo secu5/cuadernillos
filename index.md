@@ -17,7 +17,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 2 - **2DO B**](https://drive.google.com/file/d/1poqUMUisqwmBeIrMDyjLw0iPE3mj8RGX/view?usp=sharing) /// [Cuadernillo 2 - **MATEMÁTICA**](https://drive.google.com/file/d/12KiCI5t4-CQqBA9I25uqS-tgWUjqwHR6/view?usp=sharing)
 - [Cuadernillo 2 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing) /// [Cuadernillo 2 - **3RO B - PARTE B**](https://drive.google.com/file/d/1IdxsaqwFCJHToT1WLhqU2ptrgDViqN-C/view?usp=sharing)
 - [Cuadernillo 2 - **4TO A**](https://drive.google.com/file/d/1KmAaqiHhjPjmS5Y6hYZqd5cXarH9bHrW/view?usp=sharing)
-[..................Cuadernillo Teoría del Turismo](https://drive.google.com/file/d/1Op8DNtW_6EnLMcSXnygZTDwFo2TWDv_9/view?usp=sharing)
+[/// Cuadernillo Teoría del Turismo](https://drive.google.com/file/d/1Op8DNtW_6EnLMcSXnygZTDwFo2TWDv_9/view?usp=sharing)
 - [Cuadernillo 2 - **5TO B**](https://drive.google.com/file/d/1WtIbF_JZcjwFISCVs_BlERzWO8hEsiLi/view?usp=sharing)
 
 # Primera entrega
