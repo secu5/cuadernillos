@@ -6,7 +6,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 ![Image](https://sites.google.com/site/mailskike/img/2.png)
 
 ### **TURNO MAÑANA**
-- [Cuadernillo 2 - **1RO A**](https://drive.google.com/file/d/1Xkhk4jFK3iNv-EOlqWnIFhSqWaLW7Ca2/view?usp=sharing)
+- [Cuadernillo 2 - **1RO A**](https://drive.google.com/file/d/1Xkhk4jFK3iNv-EOlqWnIFhSqWaLW7Ca2/view?usp=sharing) /// [Cuadernillo 2 - **PR DEL LENGUAJE**](https://drive.google.com/file/d/1WSQYNcil-bErz3X4BzPiBKMXY3soPfC4/view?usp=sharing)
 - [Cuadernillo 2 - **2DO A**](https://drive.google.com/file/d/1ICJ2LQ_VDH5rB6qQ4dIF_YkUkhRNroH4/view?usp=sharing) /// [Cuadernillo 2 - **MATEMÁTICA**](https://drive.google.com/file/d/12KiCI5t4-CQqBA9I25uqS-tgWUjqwHR6/view?usp=sharing)
 - [Cuadernillo 2 - **3RO AyC - PARTE A**](https://drive.google.com/file/d/1fJPNj3x_cnX2Ka1v7JD23E4hcMbhFe2q/view?usp=sharing) /// [Cuadernillo 2 - **3RO AyC - PARTE B**](https://drive.google.com/file/d/1IdxsaqwFCJHToT1WLhqU2ptrgDViqN-C/view?usp=sharing)
 - [Cuadernillo 2 - **4TO B**](https://drive.google.com/file/d/1KmAaqiHhjPjmS5Y6hYZqd5cXarH9bHrW/view?usp=sharing) /// [Cuadernillo 2 - **LITERATURA**](https://drive.google.com/file/d/1FGheeCmFTfiLpqkUSW451TymwwtkOa2J/view?usp=sharing)
@@ -14,7 +14,7 @@ Desde esta página podrás descargar los materiales de estudio que usaremos en l
 - [Cuadernillo 2 - **6TO A**](https://drive.google.com/file/d/1PKKwBblsO5EflQNecbkNwvL_cDrsCZbG/view?usp=sharing)
 
 ### **TURNO TARDE**
-- [Cuadernillo 2 - **1RO C**](https://drive.google.com/file/d/1s1k1EYbDWIeCRhsAu4npST3lJ-E9ETMP/view?usp=sharing)
+- [Cuadernillo 2 - **1RO C**](https://drive.google.com/file/d/1s1k1EYbDWIeCRhsAu4npST3lJ-E9ETMP/view?usp=sharing)  /// [Cuadernillo 2 - **PR DEL LENGUAJE**](https://drive.google.com/file/d/1WSQYNcil-bErz3X4BzPiBKMXY3soPfC4/view?usp=sharing)
 - [Cuadernillo 2 - **2DO B**](https://drive.google.com/file/d/1poqUMUisqwmBeIrMDyjLw0iPE3mj8RGX/view?usp=sharing) /// [Cuadernillo 2 - **MATEMÁTICA**](https://drive.google.com/file/d/12KiCI5t4-CQqBA9I25uqS-tgWUjqwHR6/view?usp=sharing)
 - [Cuadernillo 2 - **3RO B**](https://drive.google.com/file/d/1w8gwAVnH5L5nW3pD0so9tp3FkGSvJA82/view?usp=sharing) /// [Cuadernillo 2 - **3RO B - PARTE B**](https://drive.google.com/file/d/1IdxsaqwFCJHToT1WLhqU2ptrgDViqN-C/view?usp=sharing)
 - [Cuadernillo 2 - **4TO A**](https://drive.google.com/file/d/1KmAaqiHhjPjmS5Y6hYZqd5cXarH9bHrW/view?usp=sharing) /// [Cuadernillo Teoría del Turismo](https://drive.google.com/file/d/1Op8DNtW_6EnLMcSXnygZTDwFo2TWDv_9/view?usp=sharing) /// [Cuadernillo 2 - **LITERATURA**](https://drive.google.com/file/d/1FGheeCmFTfiLpqkUSW451TymwwtkOa2J/view?usp=sharing)
