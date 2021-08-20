@@ -1,6 +1,25 @@
 ## Bienvenidos a Secu5 - Chascomús
 
 Desde esta página podrás descargar los materiales de estudio que usaremos en las distintas materias. Ante cualquier duda, comunicate con la preceptora o con los profesores.
+# Tercera entrega
+![Image](https://sites.google.com/site/mailskike/img/3.png)
+
+### **TURNO MAÑANA**
+- [Cuadernillo 2 - **1RO A - PARTE A**](https://drive.google.com/file/d/1U3sq-21-uDVAgdoPdxgHZLZ0W3ziU4Rw/view?usp=sharing) 
+- [Cuadernillo 2 - **2DO A - PARTE A**](https://drive.google.com/file/d/1GFWzR9rUU3K-nqKOUDr1wojEi2pOSnDh/view?usp=sharing) 
+- [Cuadernillo 2 - **3RO AyC - PARTE A**](https://drive.google.com/file/d/1ibE34E1UiUBBAoBeAp60bW5_-qHU9QBL/view?usp=sharing) 
+- [Cuadernillo 2 - **4TO NATURALES - PARTE A**](https://drive.google.com/file/d/1WbwFXEzfWKic00sur7usDHOPpd2OyAWv/view?usp=sharing) 
+- [Cuadernillo 2 - **5TO NATURALES - PARTE A**](https://drive.google.com/file/d/1pX9xttfxE-FDzEeDl1VjbDnLSivupAKF/view?usp=sharing)
+- [Cuadernillo 2 - **6TO NATURALES - SÓLO MATEMÁTICA**](https://drive.google.com/file/d/14QjdbjydSK2WQV5m8fSwhe8aQ5Gd7zfc/view?usp=sharing)
+
+### **TURNO TARDE**
+- [Cuadernillo 2 - **1RO C - PARTE A**](https://drive.google.com/file/d/1OUjhXbWyMXUhTta5dqNVDQ8SiUj8SoQt/view?usp=sharing)  
+- [Cuadernillo 2 - **2DO B - PARTE A**](https://drive.google.com/file/d/1sQ9MFbLE1gQgRE_4dIXRQSZk8RolO_pD/view?usp=sharing) 
+- [Cuadernillo 2 - **3RO B - PARTE A**](https://drive.google.com/file/d/1qcD_mimVIwyhBFketJh6ZGk1ug3jv6gf/view?usp=sharing)
+- [Cuadernillo 2 - **4TO TURISMO  - PARTE A**](https://drive.google.com/file/d/1yuBrEURw0qnes2yfeL-3LQWp7fig1fdd/view?usp=sharing) 
+- [Cuadernillo 2 - **5TO TURISMO  - PARTE A**](https://drive.google.com/file/d/1F3DfoyEhfyuhhrIQuwMUDQ7KhL0n4Yem/view?usp=sharing)
+- [Cuadernillo 2 - **6TO TURISMO  - SÓLO MATEMÁTICA**](https://drive.google.com/file/d/14QjdbjydSK2WQV5m8fSwhe8aQ5Gd7zfc/view?usp=sharing)
+
 
 # Segunda entrega
 ![Image](https://sites.google.com/site/mailskike/img/2.png)
